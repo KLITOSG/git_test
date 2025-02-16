@@ -1,2 +1,1 @@
-# o marios gamietai o vlakas o xontros 
-# SAS GAMAW OLOYS
+# it was just atest plz dont ban me  
