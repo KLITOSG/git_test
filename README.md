@@ -1,2 +1,1 @@
-# AYO IM NEW HERE WZZAP
-# supppppppp
+# o marios gamietai o vlakas o xontros 
